@@ -1,0 +1,1 @@
+tinh nang moi
